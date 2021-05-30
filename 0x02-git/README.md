@@ -1,3 +1,4 @@
-SAVE THE ELEPHANTS
-> We need to work together.
->The future of elephants depends on it.
+MENTAL AWARENESS MONTH
+> Listen to the silence to unravel what is in the deep.
+Love,
+The Universe.
